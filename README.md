@@ -16,4 +16,5 @@ _italic text is cool_
 ####Plan for the day
 _supplies to bring_
 [franksclass](https://www.franksclass.com)
-![cat  picture](https://ukmadcat.com/wp-content/uploads/2019/04/sleepy-cat.jpg "Cats like to sleep")](https://ukmadcat.com/wp-content/uploads/2019/04/sleepy-cat.jpg "Cats like to sleep")
+
+![Dog and Guinea Pig](https://metro.co.uk/wp-content/uploads/2020/06/PRC_154333395.jpg?quality=90&strip=all&zoom=1&resize=644%2C338)]
