@@ -18,3 +18,5 @@ _supplies to bring_
 [franksclass](https://www.franksclass.com)
 
 ![Dog and Guinea Pig](https://metro.co.uk/wp-content/uploads/2020/06/PRC_154333395.jpg?quality=90&strip=all&zoom=1&resize=644%2C338)]
+
+###EXTRA POINTS!!!!  Those photos are AWESOME
