@@ -26,5 +26,6 @@ _supplies to bring_
 ![Screen Shot 2021-04-26 at 1 33 52 AM 2185](https://user-images.githubusercontent.com/83087359/116048035-fc36f300-a631-11eb-9152-368b117230a0.png)
 ### Three Shiba Inu Dog Facts
 1. The national dog of Japan
-1. Bred for to flush birds & small game & occasionally used to hunt wild boar
-1. Almost became extinct during WW2
+2. Bred for to flush birds & small game & occasionally used to hunt wild boar
+3. Almost became extinct during WW2
+4. Training Shibas is not for the faint of heart
