@@ -22,7 +22,7 @@ _supplies to bring_
 ###EXTRA POINTS!!!!  Those photos are AWESOME
 
 
-#### Frank - _the Shiba Inu dog_
+#### Frank - _the Shiba Inu dog_ NICE!  This dog is awesome 
 ![Screen Shot 2021-04-26 at 1 33 52 AM 2185](https://user-images.githubusercontent.com/83087359/116048035-fc36f300-a631-11eb-9152-368b117230a0.png)
 ### Three Shiba Inu Dog Facts
 1. The national dog of Japan
